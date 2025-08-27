@@ -1,1 +1,1 @@
-# midasmidias-servi-o
+# midasmidias-servico
